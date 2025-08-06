@@ -4,7 +4,7 @@
 
 ## Buchung, Preis & Abrechnung ★★★★☆
 
-Eine direkte Online-Buchung ist leider nicht möglich, allerdings steht ein benutzerfreundliches Anfrageformular zur Verfügung. Zudem wird eine übersichtliche PDF mit Platzplan und Preisliste bereitgestellt, was die Orientierung erleichtert. Unsere Anfrage wurde bereits am nächsten Tag beantwortet – auch eine Rückfrage wurde prompt am darauffolgenden Tag bearbeitet. Die Bezahlung erfolgt angenehm unkompliziert erst bei Abreise.
+Eine direkte Online-Buchung ist leider nicht möglich, allerdings steht ein benutzerfreundliches Anfrageformular zur Verfügung. Zudem wird eine übersichtliche PDF mit Platzplan und Preisliste bereitgestellt, was die Orientierung erleichtert. Unsere Anfrage wurde bereits am nächsten Tag beantwortet – auch eine Rückfrage wurde prompt am darauffolgenden Tag bearbeitet. Die Bezahlung erfolgt angenehm unkompliziert erst bei Abreise. Selbst in den Sommerferien konnten wir kurzfristig (zwei Wochen vorher) einen Stellplatz bekommen.
 
 Ein kleines Manko: Die Webseite könnte mehr aussagekräftige Fotos vertragen, insbesondere von den Sanitäranlagen des Campingplatzes selbst. Aktuell finden sich dort hauptsächlich Bilder der Einrichtungen im Hüttendorf, was nicht ganz repräsentativ ist.
 
