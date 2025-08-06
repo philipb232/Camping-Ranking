@@ -62,4 +62,6 @@ Interessant ist hier das ungewöhnliche Konzept: Es gibt zwei kostenfreie Dusche
 
 Die Reinigung erfolgt einmal täglich gegen 11 Uhr. Besonders die kostenfreien Bereiche zeigen zu Stoßzeiten (morgens und abends) einen entsprechenden Verschmutzungsgrad, sind aber nach der Reinigung in einem ordentlichen Zustand.
 
+Zudem scheint der Platz über eine Art Abwasserhebeanlage zu verfügen, denn die Abläufe sind regelmäßig verstopft und es darf nur das bereitgestellte Spezialtoilettenpapier verwendet werden.
+
 Insgesamt sind Sauberkeit und Modernität als durchschnittlich, aber funktional und ausreichend zu bewerten.
