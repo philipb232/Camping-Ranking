@@ -5,7 +5,7 @@ Die Online-Buchung ist unkompliziert und erlaubt es, direkt einen Wunschstellpla
 An- und Abreisezeiten sind klassisch geregelt: Abreise bis 11 Uhr, Anreise zwischen 15 und 19 Uhr.  
 Die Preise liegen im durchschnittlichen Bereich für vergleichbare Naturcampingplätze und sind transparent gestaltet.
 
-## Lage & Umgebung ★★★★☆
+## Lage & Umgebung ★★★★★
 Das Naturcamping Leepinsee liegt eingebettet in die idyllische Mecklenburgische Seenplatte, umgeben von klaren Gewässern, dichten Wäldern und einer beeindruckenden Ruhe. Direkt am Ufer des Leepinsees gelegen, eignet sich der Platz besonders für Wassersportfreunde – ob mit dem Kanu, Kajak oder Stand-up-Paddle-Board. Boote können bequem am Platz zu Wasser gelassen werden.  
 
 Auch Radfahrer kommen voll auf ihre Kosten: Von hier aus lassen sich sowohl gemütliche Touren entlang der Seen als auch ausgedehnte Radtouren in die Natur unternehmen. Wanderer finden ebenfalls einige schöne Wege, auch wenn die Auswahl direkt vom Platz aus eher begrenzt ist. Für längere oder abwechslungsreichere Routen lohnt sich ein kurzer Transfer in die umliegenden Naturparks oder an andere Seen.  
@@ -17,7 +17,7 @@ Die Region bietet darüber hinaus zahlreiche Ausflugsmöglichkeiten:
 
 In den Sommermonaten ist das Wasser glasklar und lädt zum Schwimmen ein. Abends sorgen Sonnenuntergänge über dem See für eine fast schon magische Stimmung – perfekt für einen gemütlichen Ausklang des Tages.
 
-## Stimmung & Atmosphäre ★★★★☆
+## Stimmung & Atmosphäre ★★★★★
 Alle Stellplätze sind von Bäumen umgeben, sodass fast überall angenehmer Schatten herrscht. Die Abstände zwischen den Plätzen sind großzügig, was ein gewisses Maß an Privatsphäre schafft. Die Parzellen sind lediglich durch Steine am Boden markiert, was die Orientierung bei der Ankunft etwas erschweren kann.  
 
 Im unteren Bereich des Platzes – rund um Badestrand, Spielplatz, Zeltwiese und Gruppenstellplätze – kann es tagsüber lebhafter werden. In den übrigen Bereichen herrscht jedoch eine entspannte, ruhige Atmosphäre. Viele der Gäste sind Saisoncamper, was eine familiäre Stimmung entstehen lässt.
